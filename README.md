@@ -86,3 +86,11 @@ spécifiquement il s'agirat :
 
 
 ![image](https://github.com/user-attachments/assets/9654aecd-1d40-40cf-8dfb-99d504b65809)
+
+
+
+
+
+[voir entièrement le projet](https://anasseyahnn.github.io/Anasseyahnn-wbs/posts/post-with-code/)
+
+
